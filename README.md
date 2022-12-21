@@ -1,2 +1,2 @@
 # Resume
-Resume/CV (ล่าสุด)
+Resume/CV, Transcript (ล่าสุด)
